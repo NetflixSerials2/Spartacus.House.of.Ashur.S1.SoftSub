@@ -1,0 +1,1 @@
+# Spartacus.House.of.Ashur.S1.SoftSub
